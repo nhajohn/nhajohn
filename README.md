@@ -1,0 +1,2 @@
+# nhajohn
+Mining Bitcoin
